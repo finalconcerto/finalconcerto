@@ -4,6 +4,6 @@
 <img align="center" width="500" length="221" src="https://github.com/finalconcerto/finalconcerto/blob/c8cee9026d4f99b3c202fe43e884ae2577fc5a91/folder/me%20and%20oomf.PNG">
 <p align="center"> ㅤ
 <p align="center"> But we should be happy that they happened at all...
-<img align="center" width="700" length="10" src="https://github.com/finalconcerto/finalconcerto/blob/dbc4b360ecce1f747c5880e30f8eb2938062df22/folder/div.png">
+<img align="center" width="700" length="102" src="https://github.com/finalconcerto/finalconcerto/blob/16fe0750ea757288e50206dbefd644d456c95dd1/folder/wa.png">
 <p align="center"> Sunny ★ 18 y/o, co-host + splitroject.
 <p align="center"> DNI <16, doubles, I hide freely.
